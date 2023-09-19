@@ -1,0 +1,1 @@
+Sandeep is a focused professional in the IT industry with 5+ years of work experience. Sandeep’s core interests include software development, product management, problem solving, critical thinking, and building strong relationships with his clients. Graduated bachelors from NITK, masters from BITS Pilani. Sandeep also likes to read books, write poetry, reinvent himself.
